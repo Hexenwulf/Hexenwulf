@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Hexenwulf
-- 👀 I’m interested in getting a job in coding or programming or maybe cbyer security. 
+- 👀 I’m interested in getting a job in coding or programming or maybe cyber security. 
 - 🌱 I’m currently learning html
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me travistramble@gmail.com
